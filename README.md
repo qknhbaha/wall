@@ -14,7 +14,7 @@
 - 机场都有可能**跑路**，只是时间长短，此处只是做个笔记，跑路不负责。
 
 
-**[魔戒](https://mojie.best/#/register?code=fvVGu88F)**：**[[https://bit.ly/af3waae2](https://mojie.best/#/register?code=0r2PgPY1)]** **[备用网址](https://mojie.nl/#/register?code=0r2PgPY1)**
+**[魔戒](https://mojie.best/#/register?code=fvVGu88F)**：**[[https://bit.ly/af3waae2](https://mojie.best/#/register?code=0r2PgPY1)]** **[国内访问网址](https://mojie.nl/#/register?code=0r2PgPY1)**
 
 - 节点包括 港 台 美 日 新加坡 土耳其 阿根廷 柬埔寨 马来西亚等
 - 套餐全部为不限时流量包 不限速 不限设备 流媒体解锁
